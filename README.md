@@ -7,3 +7,5 @@ Gamarjoba
 Gagimarjos Jigaro !
 
 რატო წაშალე მადლობები ე . . .
+
+ხო დაგიმატე.
