@@ -5,3 +5,5 @@ asjhdjkabsdjansd;ashsaffja
 Gamarjoba
 
 Gagimarjos Jigaro !
+
+რატო წაშალე მადლობები ე . . .
